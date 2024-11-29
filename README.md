@@ -17,4 +17,10 @@
 ✦
 𝘿𝙤 𝙣𝙤𝙩 𝙘𝙤𝙥𝙮 𝙢𝙮 𝙨𝙠𝙞𝙣𝙨 𝙤𝙧 𝙩𝙖𝙠𝙚 𝙞𝙣𝙨𝙥𝙤 𝙬𝙞𝙩𝙝𝙤𝙪𝙩 𝙖𝙨𝙠𝙞𝙣𝙜. 𝙄𝙛 𝙬𝙖𝙣𝙩 𝙩𝙤 𝙩𝙖𝙠𝙚 𝙞𝙣𝙨𝙥𝙤, 𝙥𝙡𝙚𝙖𝙨𝙚 𝙖𝙨𝙠 𝙢𝙚 𝙛𝙞𝙧𝙨𝙩. 𝙄’𝙫𝙚 𝙝𝙖𝙙 𝙞𝙩 𝙝𝙖𝙥𝙥𝙚𝙣 𝙖𝙣𝙙 𝙄’𝙢 𝙪𝙣𝙘𝙤𝙢𝙛𝙤𝙧𝙩𝙖𝙗𝙡𝙚 𝙬𝙞𝙩𝙝 𝙞𝙩.
 ![IMG](https://files.catbox.moe/wh6n0u.webp)
-rest is a wip
+
+this mf has the worst haircut known to man
+![IMG_1081](https://github.com/user-attachments/assets/e2a0ce73-74d3-4232-9c94-1f1be4dd5bf0)
+
+but hes such a distinguished gentleman. i guess
+![IMG_1084](https://github.com/user-attachments/assets/bd190b12-f381-4af2-8b84-302ff5ed5733)
+
